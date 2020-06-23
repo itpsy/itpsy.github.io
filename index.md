@@ -11,6 +11,7 @@ Statham führt die meisten seiner Kampf- und Actionszenen selbst durch. Der Scha
 * 2017: Fast & Furious 8 (The Fate of the Furious)
 * 2018: Meg (The Meg)
 * 2019: Fast & Furious: Hobbs & Shaw (Fast & Furious Presents: Hobbs & Shaw, auch Produzent)
+
 Zitat von Jason Stratham:
 
 > Ich würde mich schlecht fühlen, 
@@ -18,3 +19,5 @@ Zitat von Jason Stratham:
 > während ein Stuntman alle ungemütlichen Szenen für mich drehen würde. 
 > Für so etwas würde ich keine Lorbeeren bekommen wollen, 
 > weil ich nicht dafür geradestehen könnte.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/5/50/Jason_Statham_2014.jpg"/>
